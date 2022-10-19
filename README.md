@@ -1,2 +1,0 @@
-# Bliitze-Image
-Logo
